@@ -1,0 +1,1 @@
+# waygadami-theme
